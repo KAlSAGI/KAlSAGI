@@ -8,7 +8,7 @@
 **[RENTRY](https://rentry.co/kaisagism-)**
 
 <img
-src="https://files.catbox.moe/lwewve.jpg" width="300"/>
+src="https://files.catbox.moe/if9z54.jpeg" width="200"/>
 
 
   **[BLOND FAG](https://github.com/blacksorroww)**
