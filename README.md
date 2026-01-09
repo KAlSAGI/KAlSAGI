@@ -5,7 +5,7 @@
 
 
 
-**[RENTRY](https://rentry.co/kaisagism-)**
+**[RENTRY(YAOI ZONE)](https://rentry.co/kaisagism-)**
 
 <img
 src="https://files.catbox.moe/if9z54.jpeg" width="200"/>
